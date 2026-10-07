@@ -8,7 +8,7 @@
 
 When I'm not coding, I usually play Minecraft, Roblox, or osu!, hang out, or listen to Spotify.
 
-Find me on [Instagram](https://www.instagram.com/n0t_vishal/), join my [Discord](https://discord.gg/QdknQu2wvU), or follow me on [X](https://x.com/yepskew).
+Find me on [Instagram](https://https://www.instagram.com/yepvishy), join my [Discord](https://discord.gg/QdknQu2wvU), or follow me on [X](https://x.com/yepskew).
 
 #
 
